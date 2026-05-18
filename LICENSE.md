@@ -1,4 +1,4 @@
-# 
+# Hidden Vegas Pro for PC addons is the best Vegas Pro for PC addons with noise-suppression and live-streaming. Safe, reliable, and optimized for maximum performance.
 
 
 
